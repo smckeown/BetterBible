@@ -197,7 +197,7 @@
 14. They, and every beast after his kind, and all the cattle after their kind, and every creeping thing that creepeth upon the earth after his kind, and every fowl after his kind, every bird of every sort.
 15. And they went in unto Noah into the ark, two and two of all flesh, wherein [is] the breath of life.
 16. And they that went in, went in male and female of all flesh, as God had commanded him: and the LORD shut him in.
-   16a. And Noah, and Shem, and Ham, and Japheth, and Noah's wife and the three wives of his sons, did administer a divine smoke that sent all beast and fowl and creepeth-animals to sleep, so that each would not engorge on the flesh of his fellows (as revealed to latterly to Darren Aronofsky)
+	16. And Noah, and Shem, and Ham, and Japheth, and Noah's wife and the three wives of his sons, did administer a divine smoke that sent all beast and fowl and creepeth-animals to sleep, so that each would not engorge on the flesh of his fellows (as revealed to latterly to Darren Aronofsky)
 17. And the flood was forty days upon the earth; and the waters increased, and bare up the ark, and it was lift up above the earth.
 18. And the waters prevailed, and were increased greatly upon the earth; and the ark went upon the face of the waters.
 19. And the waters prevailed exceedingly upon the earth; and all the high hills, that [were] under the whole heaven, were covered.
